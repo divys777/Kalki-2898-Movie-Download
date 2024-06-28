@@ -4,7 +4,7 @@
 
 ## STEPS to watch and download - Kalki 2898 AD Movie - Without ADS 
 
-1- DOWNLOAD the app PLATSTORE - https://2ly.link/1ydbi 
+1- DOWNLOAD the app PLAYSTORE - https://2ly.link/1ydbi 
 or Website - https://2ly.link/1ydbt
 
 2- Make a free account
